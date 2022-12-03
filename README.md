@@ -11,7 +11,7 @@
 ![Riot Games](https://img.shields.io/badge/riotgames-D32936.svg?style=for-the-badge&logo=riotgames&logoColor=white)
 ***
 >### *The doorstep to the temple of wisdom is a knowledge of our own ignorance* ###
-:star: I'm Dt. An IT guy who believe in the fairy tales.
+:star: I'm Dt. An IT guy who believes in the fairy tales.
 
 ---
 
