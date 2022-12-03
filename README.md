@@ -27,7 +27,7 @@
 
 **Contact me** :love_letter: :love_letter: :love_letter:
 
-:e-mail: truong18012004@gmail.com
+:e-mail: truong1812004@gmail.com
 
 ![Desktop](https://i.pinimg.com/736x/40/07/9d/40079d84641190fcbcea3c99ccb5d68f.jpg)
 
